@@ -5,3 +5,4 @@ Kendall just started a new job as a developer. For her first task she was asked 
 
 Kendall's made her pull request not considering that some of her coworkers might be using assitive technology. For this workshop you will be helping Kendall fix her pull request so all of her coworkers can get to know who Kendall is.
 
+ 
