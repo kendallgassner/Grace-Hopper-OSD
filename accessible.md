@@ -12,4 +12,4 @@ hmmm Luna is a lab pointer mix...  [here](https://dogtime.com/dog-breeds/lab-poi
 
 its kinda cute... 
 
-![Screen Shot 2022-09-14 at 9 53 31 AM](https://user-images.githubusercontent.com/15275462/187996065-1fd4bc11-c008-47ba-9d6b-fe23a41dc57f.JPG)
+![Screenshot of adorable black dog smling](https://user-images.githubusercontent.com/15275462/187996065-1fd4bc11-c008-47ba-9d6b-fe23a41dc57f.JPG)
